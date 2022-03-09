@@ -1,5 +1,4 @@
-Farouq Alsalih 
-32059151 
+Farouq Alsalih  
 Project 1 
 09/28/2021
 
